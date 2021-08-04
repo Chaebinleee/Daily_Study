@@ -1,2 +1,2 @@
 # Daily_Study
-Here is my study area
+Here is my study space
